@@ -80,4 +80,4 @@ Thanks to my loved ones for inspiring me to live with purpose, and to every pers
 
 ---
 
-> Developed with 💛 by [Your Name].
+> Developed with 💛 by Joel
